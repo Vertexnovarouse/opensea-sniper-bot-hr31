@@ -1,4 +1,4 @@
-# 
+# automatic NFT Mint Bot for opensea sniper bot | NFT-sniping & flip-strategies offers the most advanced opensea sniper bot, with NFT-sniping and flip-strategies. Ideal for
 
 
 
